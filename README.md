@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... ever heard of Pinky and Cerebro? Can we arrange a meeting with THEM?
 - 📫 How to reach me ... with your hand?
 - 💀 I think is cringy...I'm the only one siding eyes on how Netflix is portrait the relationship between Gerald and Ciri?
-- 🤖 Looking for... a cheap android (don't judge my IPhone is bloqued), MMORPG like Ragnarok Asunder or (don't judge) Era of Celestials? Thank you for your kindness.
+- 🤖 Looking for... a cheap android (don't judge my IPhone is bloqued), MMORPG game (Don't mind the in app purchase, but if there's glitches,ways around or cheap, I'm poor, I would try)like Ragnarok Asunder or (don't judge) Era of Celestials? Thank you for your kindness.
 - 🎤 I like... online Karaoke
 - 🩸 This is not period blood, and does not represent period blod, and is not an attempt to be feminist, I just needed to distract you, yup, is behind you now
 
