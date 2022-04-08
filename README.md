@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @nopingpongyestiktok, but I hate tiktok and don't have social media at all
 - 👀 I’m interested in ... how time works in the MCU
 - 🌱 I’m currently learning ... Do I need a brain to watch date reality TV from Asian (sorry if I'm being racist)countries 
-- 💞️ I’m looking to collaborate on ... ever heard of Pinky and Cerebro? Can I meet them
+- 💞️ I’m looking to collaborate on ... ever heard of Pinky and Cerebro? Can we arrange a meeting with THEM?
 - 📫 How to reach me ... with your hand?
 - 💀 I'm the only one siding eyes on how Netflix is portrait inglês Gerald and Ciri?
 - 🤖 Looking for a cheap android (don't judge my IPhone is bloqued), MMORPG like Ragnarok Asunder or (don't judge) Era of Celestials? Thank you for your kindness.
